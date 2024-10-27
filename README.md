@@ -58,4 +58,4 @@ The analysis includes:
 
 ## Contact
 
-For any questions or feedback, please feel free to reach out via email or connect on [LinkedIn](https://www.linkedin.com/in/yourusername).
+For any questions or feedback, please feel free to reach out via email or connect on [LinkedIn](https://www.linkedin.com/in/syamsulrizalfany/).
